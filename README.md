@@ -4,3 +4,5 @@ Firstly, during my university, I have learnt some basic knowledge of law. The to
 Secondly, I had a one-month internship in Guizhou Yongqing Law Firm in August 2018. The experience gave me some idea of how the law works in real life and I felt the authority of the law and strengthened my faith in the law.
 Lastly, the systematic study of law in university makes me more and more interested in law, and I enjoy the process of using law to think and solve problems, so I want to further study. I would spare no effort to study my major well and improve myself if have a chance for further study.
 That's all, thanks for your attention!
+
+This 
